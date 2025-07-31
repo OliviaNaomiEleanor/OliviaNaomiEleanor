@@ -20,7 +20,7 @@ Coding languages I can use
 - GPL
 
 
-ini adalah profile github saya
+this is my social media profile
 
-https://github.com/OliviaNaomiEleanor
-
+- https://github.com/OliviaNaomiEleanor
+- https://www.youtube.com/@OliviaNaomiEleanor
